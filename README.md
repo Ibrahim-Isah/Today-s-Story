@@ -1,2 +1,2 @@
 # Today-s-Story
-Good thing, I still maintain
+Good thing, I still maintain my streaks
