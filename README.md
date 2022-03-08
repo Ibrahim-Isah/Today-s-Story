@@ -1,2 +1,2 @@
 # Today-s-Story
-Today is a good day to start with. I will writing some awesome lines of code . i just hope they work well so that i will be happy and proud of myself. Here we go lol
+Today I am feeling little sick. Didn't have a goodnight sleep and now I am weak and tired also feeling the sickmode
