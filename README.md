@@ -1,2 +1,2 @@
 # Today-s-Story
-Today I am feeling little sick. Didn't have a goodnight sleep and now I am weak and tired also feeling the sickmode
+Today I take my time out to rest. Have a free day and enjoy myself which I did I am now refreshed and ready for some challenges
