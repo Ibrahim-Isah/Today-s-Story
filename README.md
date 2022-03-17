@@ -1,2 +1,2 @@
 # Today-s-Story
-We have being writing and learning today. I love the consistency i am achieving and i would keep on with the work until i achieve a good level of workflow and get better everyday. Alhamdulliah
+I am damned, i didnt make a merge yesterday and i didnt get the green box. damnnnnnnnnnnnnnnnnnnnnnnnnnn
