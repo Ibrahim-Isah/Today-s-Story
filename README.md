@@ -1,4 +1,2 @@
 # Today-s-Story
-I am damned, i didnt make a merge yesterday and i didnt get the green box. damnnnnnnnnnnnnnnnnnnnnnnnnnn
-Recover my streak
-Streak don come back oooo
+Here we are today about to do some react native code for the rest of the day
