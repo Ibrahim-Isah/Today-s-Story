@@ -1,2 +1,2 @@
 # Today-s-Story
-Lost my phone, lost my streak
+Didnt write my own code today but i have assisted a friend on his own
