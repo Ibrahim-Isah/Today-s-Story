@@ -1,2 +1,2 @@
 # Today-s-Story
-Didnt write my own code today but i have assisted a friend on his own
+Another day and i am here doing my things as usual. Writing codes for computer to understand
