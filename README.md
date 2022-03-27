@@ -1,2 +1,2 @@
 # Today-s-Story
-Another day and i am here doing my things as usual. Writing codes for computer to understand
+Today I feel like shit, I got to improve my sleeping schedule and work better. I need to start earning in foreign currency soon because this national currency dey do me shege
