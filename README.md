@@ -1,3 +1,2 @@
 # Today-s-Story
-No streak
-No wahala
+Giving up is not an option but mans must chop
